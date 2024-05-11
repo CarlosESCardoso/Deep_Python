@@ -1,4 +1,4 @@
-# Imersão Alura 🧑‍💻 + Google Gemini 🌟 + vIAjaBrasil 
+# Imersão Alura  + Google Gemini  + vIAjaBrasil 
 
 
 ## Descubra o Brasil dos seus sonhos com o vIAjaBrasil: Seu guia virtual personalizado!
